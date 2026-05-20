@@ -1,0 +1,1 @@
+# liftcare-privacy-policy
