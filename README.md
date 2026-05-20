@@ -76,5 +76,5 @@ Contact Us
 
 If you have any questions about this Privacy Policy or how your information is handled, please contact us:
 
-Email: [your support email]
+Email:doanquyetchien1986@gmail.com
 Website: https://lae.com.vn
